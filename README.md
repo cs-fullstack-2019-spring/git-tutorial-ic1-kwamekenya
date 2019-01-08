@@ -6,4 +6,4 @@ what a beautiful day it is!!
 
 God is good
 
-
+Add something new everyday
